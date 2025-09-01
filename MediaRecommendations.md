@@ -18,6 +18,7 @@ TV Series
 - How I met your Mother
 - The Big Bang Theory
 - Men in Trees
+- Battlestar Galactica (the new one)
 
 Stuff People Recommend
 - The Ghostwriter
